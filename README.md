@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @taian-lee
 - 👀 I’m interested in build myself
 - 🌱 I’m currently learning spoken English
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me litaian1993@gmail.com
